@@ -1,0 +1,18 @@
+-# sobre mim *Letíca Oliveira*
+-## leleOliveira1910
+-####
+-**olá, eu sou a letícia**
+- :+1:o meu email(santana.oliveira.leticia@escola.pr.gov.br)
+- :+1: estou interessada em aprender mais sobre progamação
+-
+- 
+- 
+- 
+- 
+- 
+-
+-
+-
+-
+-
+-
